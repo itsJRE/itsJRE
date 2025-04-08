@@ -1,9 +1,9 @@
 - 👋 Hi, I’m Jashim Rana Ebu
 - 👀 I’m interested in SEO
 - 🌱 I’m currently learning: Programming & Ai
-- 💞️ I’m looking to collaborate on Make Money Online at Home
 - 📫 How to reach me: Telegram @JashimRanaEbu
 - 😄 Pronouns: Jashim Rana Ebu : Github.Com/itsJRE
+- 💞️ I’m looking to collaborate on Make Money Online at Home
 - ⚡ Fun fact: I can index any link or URL fast within 12 hours to 48 hours.
 
 <!---
